@@ -1,1 +1,1 @@
-A website for my favourite character is currently being built here!
+# Vorstellung der Kinder-/ Jugendbuch-Reihe "Die Duftapotheke"
