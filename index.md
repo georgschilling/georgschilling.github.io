@@ -9,4 +9,4 @@ In dem Buch geht es um die 13- Jährige Luzie, die samt Familie in eine alte Vil
 	* riechen
 	* erfuehlen
 
-„Die Augen sind der Schlüssel zur Seele, aber die Nase ist das Tor.“ – Daan de Bruijn, Duftapotheker
+Die Augen sind der Schlüssel zur Seele, aber die Nase ist das Tor.
