@@ -8,3 +8,7 @@ In dem Buch geht es um die 13- Jährige Luzie, die samt Familie in eine alte Vil
 * Kann Duefte
 	* riechen
 	* erfuehlen
+
+Die Augen sind der Schlüssel zur Seele, aber die Nase ist das Tor.
+
+<img src="https://www.google.com/url?sa=i&url=https%3A%2F%2Flass-mal-lesen.blog%2Fdie-duftapotheke-ein-geheimnis-liegt-in-der-luft%2F&psig=AOvVaw3MxHYANG70X67XleW1GrU1&ust=1593524916652000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCLja34mVp-oCFQAAAAAdAAAAABAD"/>
